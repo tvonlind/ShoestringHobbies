@@ -1,0 +1,1 @@
+<!-- This post is about sewing as a shoestring hobby -->

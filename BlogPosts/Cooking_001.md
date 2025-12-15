@@ -1,0 +1,1 @@
+<!-- This is an introductory post expounding on the thought that cooking is a prime example of a good shoestring hobby. -->
